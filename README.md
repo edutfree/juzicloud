@@ -4,9 +4,9 @@
 
 永久官网：[juzicloud.net](https://xuv.cc/out/juzi)
 
-地址1：[https://juzi880.xyz](https://juzi880.xyz/auth/register?code=sIUI)
+地址1：[https://juzi63.com](https://juzi63.com/auth/register?code=sIUI)
 
-地址2：[https://juzi998.com](https://juzi998.com/auth/register?code=sIUI)
+地址2：[https://juzi82.com](https://juzi82.com/auth/register?code=sIUI)
 
 [![桔子云机场官网地址](juzicloud_20240614_144406.png)](https://xuv.cc/out/juzi)
 
@@ -22,7 +22,7 @@
 
 【优惠活动】
 
-桔子云8月特惠包年7折优惠代码：[J5678](https://xuv.cc/out/juzi)
+桔子云9月特惠包年7折优惠代码：[JJ789](https://xuv.cc/out/juzi)
 
 
 ## 桔子云特色
