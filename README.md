@@ -1,10 +1,12 @@
-# 桔子云官网地址2025最新入口 + 最新优惠码
+# 桔子云官网地址最新入口
 
 永久官网：[juzicloud.net](https://xuv.cc/out/juzi)
 
 地址1：[https://juzi82.xyz](https://juzi82.xyz/auth/register?code=sIUI)
 
-地址2：[https://juzi77.xyz](https://juzi77.xyz/auth/register?code=sIUI)
+地址2：[https://juzi71.xyz](https://juzi71.xyz/auth/register?code=sIUI)
+
+地址3：[https://juzi62.xyz](https://juzi62.xyz/auth/register?code=sIUI)
 
 ---
 
@@ -26,7 +28,7 @@
 
 【juziyun优惠活动】
 
-桔子云2025包年7折优惠代码：[JJ369](https://xuv.cc/out/juzi)
+桔子云2026包年7折优惠代码：[JJ1234](https://xuv.cc/out/juzi)
 
 
 ## 桔子云特色
