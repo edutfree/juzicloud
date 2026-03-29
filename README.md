@@ -2,19 +2,15 @@
 
 永久官网：[juzicloud.net](https://xuv.cc/out/juzi)
 
-地址1：[https://juzi82.xyz](https://juzi82.xyz/auth/register?code=sIUI)
+地址1：[https://juzi52.net](https://juzi52.net/auth/register?code=sIUI)
 
-地址2：[https://juzi71.xyz](https://juzi71.xyz/auth/register?code=sIUI)
+地址2：[https://juzi52.xyz](https://juzi52.xyz/auth/register?code=sIUI)
 
-地址3：[https://juzi62.xyz](https://juzi62.xyz/auth/register?code=sIUI)
+## 桔子云优惠码
 
----
+【juziyun优惠活动】
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+桔子云2026包年7折优惠代码：[JJ1234](https://xuv.cc/out/juzi)
 
 ## 简介
 
@@ -23,13 +19,6 @@
 支持SSR、V2ray节点，国内中转节点，解锁流媒体，CN2/BGP隧道中转和IPLC国际专线节点。
 
 支持支付宝、微信支付。
-
-## 桔子云优惠码
-
-【juziyun优惠活动】
-
-桔子云2026包年7折优惠代码：[JJ1234](https://xuv.cc/out/juzi)
-
 
 ## 桔子云特色
 
